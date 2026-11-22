@@ -1,0 +1,1 @@
+# shingoka.github.io
